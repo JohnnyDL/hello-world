@@ -1,3 +1,3 @@
-"Physics is one of my true passions"G
+"Physics is one of my true passions"
 
 
